@@ -1,1 +1,1 @@
-[GitHub](https://github.com/Big-Zude)
+[GitHub](http://github.com)
